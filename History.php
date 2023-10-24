@@ -16,6 +16,6 @@ QACHUYTOY is the perfect place to shop for anime toys for children. With a wide 
 
 
 
-Visit QACHUYTOY today and discover the world of anime toys!!!!
+Visit QACHUYTOY today and discover the world of anime toys!!!!!!!!!
 </h3>
 </div>
